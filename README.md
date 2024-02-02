@@ -305,7 +305,7 @@ Berdasarkan temuan di atas, beberapa rekomendasi strategis yang dapat diajukan:
    Berdasarkan temuan ini, perusahaan dapat mempertimbangkan strategi yang lebih terfokus pada pemasaran dan produksi mobil berwarna hitam. Dalam pengembangan produk, upaya dapat difokuskan pada peningkatan kualitas dan varian warna hitam yang lebih menarik. Kampanye pemasaran dapat ditingkatkan untuk menekankan kesan estetika dan elegan yang dapat diberikan oleh mobil berwarna hitam, dengan memanfaatkan elemen-elemen desain yang menonjol. Menggabungkan kesan estetika ini dalam strategi pemasaran dapat meningkatkan daya tarik produk dan meningkatkan pangsa pasar.
 5. Penyesuaian strategi tipe mobil
 
-   Mempertahankan strategi pemasaran yang efektif untuk tipe "estate" dan "sedan," sekaligus menjelajahi inovasi pada tipe "coupe" untuk meningkatkan daya tariknya. Perusahaan dapat memanfaatkan keberhasilan penjualan tipe "estate" dan "sedan" sebagai fondasi untuk pertumbuhan lebih lanjut, sambil terus memonitor dinamika pasar dan merespons perubahan preferensi konsumen dengan fleksibilitas.
+   Mempertahankan strategi pemasaran yang efektif untuk tipe estate dan sedan, sekaligus menjelajahi inovasi pada tipe coupe untuk meningkatkan daya tariknya. Perusahaan dapat memanfaatkan keberhasilan penjualan tipe estate dan sedan sebagai fondasi untuk pertumbuhan lebih lanjut, sambil terus memonitor dinamika pasar dan merespons perubahan preferensi konsumen dengan fleksibilitas.
 
    
 
