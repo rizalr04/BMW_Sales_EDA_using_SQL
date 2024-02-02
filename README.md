@@ -1,4 +1,4 @@
-# BMW Sales EDA with SQL
+# BMW Sales EDA using SQL
 Melakukan eksplorasi data menggunakan SQL untuk mendapatkan wawasan tentang faktor-faktor yang memengaruhi harga mobil BMW.
 
    ![image](https://github.com/rizalr04/SQL_EDA/blob/5923dd186adc8cd1d477b36689a465eaa7d40f4a/Asset/BMW-SSE21-Footer-desktop.jpg)
